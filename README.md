@@ -1,0 +1,1 @@
+# my-shelly-coop-ripo
